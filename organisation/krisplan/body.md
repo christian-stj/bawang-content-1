@@ -164,7 +164,7 @@ Svara inte på några frågor utan hänvisa till din sektionsstyrelse, de kan sv
 
 - Datasektionens Ordförande: [070 - 534 41 62](tel: 070 - 534 41 62) (David Puustinen)
 - Datasektionens Vice Ordförande: [072 - 150 99 39](tel: 072 - 150 99 39) (Pontus Söderlund)
-- THS Ordförande: [08 - 790 98 84](tel: 08 - 790 98 84) (Teo Elmfeldt)
+- THS Ordförande: [08 - 790 98 84](tel: 08 - 790 98 84) (Cornelia Haag)
 - Kriskontakt på EECS-skolan: [08 - 790 99 99](tel: 08 - 790 99 99) (Nummer till krisgruppen)
 - Säkerhetschef på KTH: [070 - 342 38 10](tel: 070 - 342 38 10) (Roine Hammar)
 
